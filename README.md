@@ -1,0 +1,1 @@
+Polecam się na przyszłość
